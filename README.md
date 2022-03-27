@@ -11,3 +11,5 @@ Rigister Conect with facebook ,Google,
 all other component conect toeach other as reletion reletive  
 other un nessary component drop
 
+
+if you want to conect 03003764818 whatsapp for better comunication
